@@ -8,3 +8,9 @@ Francisco Gutiérrez López
 -  mantel blanco
 -  sal
 -  mesa
+
+Fernando Corrales
+- Botella
+- Caja de cigarrillos
+- Cuadro
+- Tamal
