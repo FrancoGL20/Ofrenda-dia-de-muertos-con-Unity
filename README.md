@@ -14,3 +14,8 @@ Fernando Corrales
 - Caja de cigarrillos
 - Cuadro
 - Tamal
+
+JC Hernandez
+- Cruz
+- Flor
+- Arco
