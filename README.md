@@ -19,3 +19,10 @@ JC Hernandez
 - Cruz
 - Flor
 - Arco
+
+Rodrigo Narváez
+- Copal
+- Izcuintle
+- Vaso con agua
+- Vela
+- Estrella de luz
