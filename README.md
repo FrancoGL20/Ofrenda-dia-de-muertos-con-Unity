@@ -26,3 +26,9 @@ Rodrigo Narváez
 - Vaso con agua
 - Vela
 - Estrella de luz
+
+Paul Sestier
+- Calavera de azucar
+- Escalones
+- Pan de Muerto
+- Incienso
